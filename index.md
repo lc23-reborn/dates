@@ -16,8 +16,10 @@ come before you. my job will also often come before you, bc it supports my
 kid.
 </details>
 <!-- reminder comment -->
+
 <details><summary> you're not good enough </summary>
 <!-- reminder comment -->
+
 you're some twitter random. you don't know anything about me. i have no 
 reason to differentiate you from anyone else on here. you don't live near
 my undisclosed location. you still think you can find The One. you have
@@ -25,8 +27,10 @@ mid taste in music. you dance in a societally prescribed way rather than
 from the gut. you're susceptible to trends like 'browsing date me pages'.
 </details>
 <!-- reminder comment -->
+
 <details><summary> dating as an abstraction is kinda shit </summary>
 <!-- reminder comment -->
+
 if you want to hang out, but keep sex on the table, just say that. if you 
 need to build a life with someone, i'm probably not the one unless you're 
 tryna build a really weird life and only base a small part of it on your 
@@ -35,8 +39,10 @@ onto 'people meeting people'. if you wanna fall for someone over the internet,
 they don't need to roll out the red carpet for you. you can just do that.
 </details>
 <!-- reminder comment -->
+
 <details><summary> this trend commodifies serendipitous beauty </summary>
 <!-- reminder comment -->
+
 this whole date me page thing is cute when a few people do it, and stems from
 people saying 'twitter' when asked 'what dating apps do you use'. but, twitter
 dating was never predicated on format. quite the contrary, it was usually an 
@@ -46,11 +52,14 @@ like that about someone's profile, tell them, you fucking pussy. if not, don't
 force it. it carves out all the grace of the thing.
 </details>
 <!-- reminder comment -->
+
 <details><summary> i'm not who you think i am </summary>
 <!-- reminder comment -->
+
 no one is, online. this account is as naked as i know how to anonymously be 
 but it's still far from who i am. this date me page, were i to take it 
 seriously, would be even further from who i am.
+
 
 if you insist on trying to know if we should be intimate via the internet,
 you're gonna have to go harder than this. listen to some streams. reply guy.
@@ -60,11 +69,3 @@ hard to reach, and probably flattered by your (genuine) interest.
 but pandering for it feels bad, so, here's this thing.
 </details>
 <!-- reminder comment -->
-
-<details><summary> -fold text- </summary>
-<!-- reminder comment -->
-
-</details>
-<!-- reminder comment -->
-
-
